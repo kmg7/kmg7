@@ -2,4 +2,4 @@ I am a fast learner and highly motivated computer engineer with a passion for ne
 
 My skills include problem-solving, analytical thinking, and strong teamwork and communication abilities. I am also proficient in time management and organization.
 
-My goal is to leverage my knowledge and skills to contribute to innovative and creative solutions.
+My goal is to leverage my knowledge and skills to contribute innovative and creative solutions.
